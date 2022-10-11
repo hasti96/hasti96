@@ -1,4 +1,4 @@
-👋 Hi, I’m @hasti96
+👋 Hi, I’m Hastimal
 
 👀 I’m interested in result-driven software development with an affinity to solve challenging problems to meet user requirements with speed and accuracy.
 
