@@ -7,6 +7,6 @@
 💞️ I’m looking to collaborate on project which solves end user problems.
 
 📫 How to reach me ...
-  - Shoot a msg on Linkedin : https://www.linkedin.com/in/hastimal-paliwal/
-  - connect me on Discord : H}{H#5968
+  - Linkedin : https://www.linkedin.com/in/hastimal-paliwal/
+  - Discord : H}{H#5968
   - Email : hasti9769@gmail.com
